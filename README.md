@@ -2,4 +2,4 @@
 
 I stude in Netology
 
-27.11.2025
+27.11.2024
